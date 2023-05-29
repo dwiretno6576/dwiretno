@@ -1,0 +1,2 @@
+# dwiretno
+Gunakan dengan bijak 
